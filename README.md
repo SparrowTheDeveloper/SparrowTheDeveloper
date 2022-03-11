@@ -2,4 +2,5 @@
 - > I am intrested in programming, roblox exploiting;
 - > I am currently learning HTML;   
 - > I don't know yet;
-- > Discord --> Sparrow#3427;
+- > Discord --> Lost_Agent#3427;
+- > I'm currently 14 years old;
